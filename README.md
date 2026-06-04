@@ -13,4 +13,4 @@
 
 bro
 
-![](https://media.discordapp.net/attachments/1361913434517799095/1512188600471523539/image.png?ex=6a232ee1&is=6a21dd61&hm=859ee79890d98ff9c8991d2bc318288c7fcc6f7d4ebbd0f1ce693d5f1c5b6841&=&format=webp&quality=lossless&width=541&height=806)
+![](https://media.discordapp.net/attachments/1185624236107243560/1512189751057191174/image.png?ex=6a232ff3&is=6a21de73&hm=7559c9e1e8227d219a7a3b6bad664733bb74244fb7f95f0bcdb8f23e00ce8eaa&=&format=webp&quality=lossless&width=583&height=814)
