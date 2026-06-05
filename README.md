@@ -11,6 +11,3 @@
 
 
 
-bro
-
-![](https://media.discordapp.net/attachments/1185624236107243560/1512189751057191174/image.png?ex=6a232ff3&is=6a21de73&hm=7559c9e1e8227d219a7a3b6bad664733bb74244fb7f95f0bcdb8f23e00ce8eaa&=&format=webp&quality=lossless&width=583&height=814)
