@@ -1,3 +1,6 @@
+<img width="305" height="181" alt="image" src="https://github.com/user-attachments/assets/ac7a1732-bd2c-4ed4-a245-5768e532a646" />
+
+
 <div align="center">
 
 can u FUCKING NOOOOT [THEO](https://github.com/6ullets)
