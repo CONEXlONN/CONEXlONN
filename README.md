@@ -1,6 +1,7 @@
 
 
 <div align="center">
+<img width="200" height="201" alt="image" src="https://github.com/user-attachments/assets/ddcde37e-77c0-43df-bf65-8ebe1c2ddc1c" />
 
 can u FUCKING NOOOOT [THEO](https://github.com/6ullets)
 
