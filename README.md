@@ -1,4 +1,10 @@
 <div align="center">
+ 
+<img width="641" height="655" alt="image" src="https://github.com/user-attachments/assets/5269900e-87e1-40f0-a1c2-a28bd956ccc0" />
+
+theo says this is me btw 
+
+<div align="center">
 
 <img width="492" height="624" alt="image" src="https://github.com/user-attachments/assets/7e1c2ac3-8f18-49b5-9b91-7a7a509a3d0f" />
 
