@@ -1,5 +1,7 @@
 <div align="center">
 
+<img width="873" height="66" alt="image" src="https://github.com/user-attachments/assets/df97d55f-926d-4f72-92b5-df25a5845d3c" />
+
 <img width="424" height="562" alt="image" src="https://github.com/user-attachments/assets/586d1c02-61b2-4f17-8118-7219d9ea4792" />
 
  [THEO](https://github.com/6ullets) PISSES HIMSELF LIVE
