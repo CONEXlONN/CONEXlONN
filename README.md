@@ -1,4 +1,10 @@
 <div align="center">
+
+<img width="424" height="562" alt="image" src="https://github.com/user-attachments/assets/586d1c02-61b2-4f17-8118-7219d9ea4792" />
+
+ [THEO](https://github.com/6ullets) PISSES HIMSELF LIVE
+
+<div align="center">
  
 <img width="641" height="655" alt="image" src="https://github.com/user-attachments/assets/5269900e-87e1-40f0-a1c2-a28bd956ccc0" />
 
