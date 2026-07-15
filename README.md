@@ -1,8 +1,8 @@
 <div align="center">
 
-[read this document](https://docs.google.com/document/d/1MPDj9h3RrDdo_3b_-G_Zjs2kc14SRMQhVU4QU9Gw17A/edit?tab=t.0)
+[read this document](https://docs.google.com/document/d/1MPDj9h3RrDdo_3b_-G_Zjs2kc14SRMQhVU4QU9Gw17A/edit?tab=t.0) -> yall are welcome to dm me @adore_x or send me questions or shit on my atabook ok
 
-[compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame) - [compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
 <div align="center">
 
 <img width="873" height="66" alt="image" src="https://github.com/user-attachments/assets/df97d55f-926d-4f72-92b5-df25a5845d3c" />
