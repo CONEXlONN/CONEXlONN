@@ -1,5 +1,6 @@
 <div align="center">
 
+[read this document](https://docs.google.com/document/d/1MPDj9h3RrDdo_3b_-G_Zjs2kc14SRMQhVU4QU9Gw17A/edit?tab=t.0)
 
 [compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
 <div align="center">
