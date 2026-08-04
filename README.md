@@ -1,4 +1,8 @@
-<div align="center">
+<div align="center
+
+IT WONT LET ME PUT THE CUTE ASS SHARPNESS FANART SOMEONE SENT ME, WHOEVER MADE IT CONTACT ME IM SEIROUS
+
+<div align="center
 
 [trophy](https://github.com/ponychievements) - [nominations](https://ponytownnominee.straw.page/wk) - [pt-walk-of-fame](https://github.com/pt-walk-of-fame) - [compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
 <div align="center">
