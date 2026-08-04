@@ -1,8 +1,5 @@
 <div align="center">
 
-hi i own @arronax-j github, if you want it contact me @adore_x on discord or contact me through my ata (its new wifies video github) youll need to make an alt account
-
-
 [trophy](https://github.com/ponychievements) - [nominations](https://ponytownnominee.straw.page/wk) - [pt-walk-of-fame](https://github.com/pt-walk-of-fame) - [compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
 <div align="center">
 
