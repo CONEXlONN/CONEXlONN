@@ -1,8 +1,7 @@
 <div align="center">
 
-<img width="351" height="211" alt="image" src="https://github.com/user-attachments/assets/944015dc-f30b-409d-b628-6b87e4f83a4e" />
+hi i own @arronax-j github, if you want it contact me @adore_x on discord or contact me through my ata (its new wifies video github) youll need to make an alt account
 
-IM GONE AS FUCK BRO omg i can deadass put a gif on my github of how many fucking gimmicks i have im so lazy 
 
 [trophy](https://github.com/ponychievements) - [nominations](https://ponytownnominee.straw.page/wk) - [pt-walk-of-fame](https://github.com/pt-walk-of-fame) - [compliment town](https://github.com/compliment-town) - [pt players](https://github.com/pt-players) - [title town](https://github.com/title-town)
 <div align="center">
